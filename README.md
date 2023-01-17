@@ -12,3 +12,7 @@ Don't steal without crediting me.
 
 Channel:
 https://www.youtube.com/channel/UCLXxfueCPZRZnyGFWJ07uqA
+
+Link to Museformer Models:
+https://drive.google.com/drive/u/3/folders/1DGSdYPPiHUren1TZ4p-FbT3O2r-V5CIe
+
